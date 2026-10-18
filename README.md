@@ -1,1 +1,1 @@
-# politica-privacidad-duale
+# politica-privacidad-novacorp
